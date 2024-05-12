@@ -1,0 +1,1 @@
+# Licenciado-sob-a-Licen-a-Apache-Vers-o-2.0-a-Licen-a-Gemini-API-Incorpora-es-de-in-cio-r-pido
